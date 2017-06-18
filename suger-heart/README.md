@@ -3,4 +3,8 @@
 * https://ameblo.jp/masa09240924/image-12226647429-13816272192.html
 * http://kawahara-ds.co.jp/info/illust12/
 * http://www.tinami.com/img/contest/to-bi2015/rs/002.jpg
+* https://imascg-slstage-wiki.gamerch.com/%E4%BD%90%E8%97%A4%E5%BF%83
+* http://www.nicovideo.jp/watch/sm30341013
+* https://howto.clip-studio.com/library/page/view/clipstudiopaint_hajimete_kihon_004
+* https://ichi-up.net/2016/121
 * [しゅがしゅがはぁとの子守唄 \- ニコニコ動画](http://www.nicovideo.jp/watch/sm29843977)
